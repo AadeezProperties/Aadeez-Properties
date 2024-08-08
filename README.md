@@ -1,0 +1,2 @@
+# Aadeez-Properties
+Privacy Policy
